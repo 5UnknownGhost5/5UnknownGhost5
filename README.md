@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @5UnknownGhost5
+- 👀 I’m interested in playing video games, readin, learning, drawing, getting into "accidental" trouble.
+- 📫 How to reach me you can reach me through email, ghostrocknroll@gmail.com
+- Note: I have no idea on what im doing right now
